@@ -1,1 +1,1 @@
-AI Safety Community
+AI Safety UAE
